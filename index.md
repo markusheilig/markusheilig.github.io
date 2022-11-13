@@ -1,1 +1,1 @@
-Things too important to get lost.
+…just things too important to get lost.
